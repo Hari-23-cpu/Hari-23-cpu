@@ -40,5 +40,5 @@ I am open to collaborating on:
 ## Let's Connect!
 Feel free to reach out if you're looking for a dedicated collaborator for AI and Web projects!
 
-* **LinkedIn:** HARI KRISHNA R | LinkedIn 
+* **LinkedIn:** https://www.linkedin.com/in/hari-krishna-r-a9a09823a/ 
 * **Email:** krishnahari1042@gmail.com
